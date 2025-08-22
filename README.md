@@ -9,10 +9,10 @@ From NFT e-commerce platforms to AI-powered job assistants, I’m always experim
 I believe your voice and your story are powerful tools and I use mine to inspire.
 
 💡 Some of my interests:
-- ✨ Creating digital products that make life easier
-- 🌱 Tech for Agriculture (AgriTech)
-- 🤖 Building personal tools with AI & automation
-- 🗣️ Public speaking + youth empowerment
+- Creating digital products that make life easier
+- Tech for Agriculture (AgriTech)
+- Building personal tools with AI & automation
+- Public speaking + youth empowerment
 
 
 📫 Let’s connect:  
